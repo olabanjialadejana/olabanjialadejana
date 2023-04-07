@@ -1,6 +1,6 @@
 ## Olabanji Aladejana
 
-I am a Lecturer in the [Department of Remote Sensing and Geoscience Information System](https://rsg.futa.edu.ng/), [Federal University of Technology, Akure, Ondo State, Nigeria](https://www.futa.edu.ng)
+I am a Scientist in the [Department of Remote Sensing and Geoscience Information System](https://rsg.futa.edu.ng/), [Federal University of Technology, Akure, Ondo State, Nigeria](https://www.futa.edu.ng)
 [Check out my page at FUTA website](https://rsg.futa.edu.ng/home/profile/2472) 
 
 ### Education
