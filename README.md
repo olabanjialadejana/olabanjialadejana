@@ -1,7 +1,7 @@
 ## Olabanji Aladejana
 
-I am a Remote Sensing/Environmental Scientist in the [Department of Remote Sensing and Geoscience Information System](https://rsg.futa.edu.ng/), [Federal University of Technology, Akure, Ondo State, Nigeria](https://www.futa.edu.ng)
-[Check out my page at FUTA website](https://rsg.futa.edu.ng/home/profile/2472) 
+I am a Remote Sensing/Environmental Scientist in the [Department of Geomatics Engineering and Land Management](https://sta.uwi.edu/eng/geomatics/), [The University of the West Indies, St. Augustine, Trinidad and Tobago](https://sta.uwi.edu/)
+[Check out my page at UWI website](https://sta.uwi.edu/eng/geomatics/dr-olabanji-aladejana)
 
 
 
