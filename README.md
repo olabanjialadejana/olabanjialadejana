@@ -1,7 +1,7 @@
 ## Olabanji Aladejana
 
 I am a Remote Sensing/Environmental Scientist in the [Department of Geomatics Engineering and Land Management](https://sta.uwi.edu/eng/geomatics/), [The University of the West Indies, St. Augustine, Trinidad and Tobago](https://sta.uwi.edu/)
-[Check out my page at UWI website](https://sta.uwi.edu/eng/geomatics/dr-olabanji-aladejana)
+Check out my page at UWI website (https://sta.uwi.edu/eng/geomatics/dr-olabanji-aladejana)
 
 
 
